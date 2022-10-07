@@ -7,6 +7,8 @@ Si por el contrario quieres saber más sobre gatetes entra a este enlace de [Wik
 
 ## ¿Qué vas a encontrar aquí?
 
+![Gatete](2.jfif)
+
 Esta es una **página web** de ~~perros~~ *gatos* en la que podrás encontrar las siguientes cosas:
 
 - [ ] Vacas.
